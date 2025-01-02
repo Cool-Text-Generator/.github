@@ -1,6 +1,8 @@
-# Create Eye-Catching Text with the Cool Text Generator  
 
 Do you want your text to stand out and grab attention? The **cool text generator** is the perfect tool for you! Whether you’re creating fun social media posts, stylish bios, or unique nicknames, this online tool makes your text fancy and exciting. Best of all, it’s super easy to use and completely free.  
+
+**Links to Our Tool:**
+
 ➤ ►🌍📺📱👉 [Cool Text Generator ](https://www.cooltextmaker.com/)
 
 ➤ ►🌍📺📱👉 [Cool Text Generator for Instagram ](https://www.cooltextmaker.com/)
