@@ -19,6 +19,8 @@ Do you want your text to stand out and grab attention? The **cool text generator
 
 ➤ ►🌍📺📱👉 [Cool Text Generator Online for Roblox ](https://www.cooltextmaker.com/)
 
+---
+
 ## What Is a Cool Text Generator?  
 A **cool text generator** is a simple tool that lets you turn plain text into fancy, stylish, and creative designs. It works online, so there’s no need to download anything. Just type your text, and the tool instantly transforms it into eye-catching fonts and symbols. You can copy the result and use it anywhere—on Instagram, Facebook, WhatsApp, or even gaming profiles.  
 
