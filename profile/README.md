@@ -1,6 +1,10 @@
 
 Do you want your text to stand out and grab attention? The **cool text generator** is the perfect tool for you! Whether you’re creating fun social media posts, stylish bios, or unique nicknames, this online tool makes your text fancy and exciting. Best of all, it’s super easy to use and completely free.  
 
+[![Cool Text Generator](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476-rw/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
+
+---
+
 **Links to Our Tool:**
 
 ➤ ►🌍📺📱👉 [Cool Text Generator ](https://www.cooltextmaker.com/)
