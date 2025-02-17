@@ -1,4 +1,4 @@
-[![Cool Text Image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
+[![Cool Text Generator](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
 
 Hello friends! Today we will talk about a cool text generator. This tool can change your plain text into a fun and stylish design. It is easy to use. Even a fifth grader can try it. The cool text generator makes your text look different and neat. You can use it for school projects, social media, or just for fun. It is a neat online tool that gives you creative text ideas.
 
